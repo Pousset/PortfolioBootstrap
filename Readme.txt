@@ -1,1 +1,0 @@
-Ce site est encore en Beta !
